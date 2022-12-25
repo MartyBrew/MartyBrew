@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @MartyBrew
+- 👀 I’m interested in Baseball Data and Reseach 
+- 🌱 I’m currently learning the sports world of tec
